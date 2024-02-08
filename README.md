@@ -13,7 +13,7 @@ About Me
 
     😄 Pronouns: He/Him
 
-    ⚡ Fun fact: I'm also a coffee enthusiast and enjoy exploring new cafes in my free time!
+    ⚡ Fun fact: I'm a fan of nature and would like to explore it!
 
 Collaboration Opportunities
 
