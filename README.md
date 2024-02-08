@@ -9,7 +9,7 @@ About Me
 
     💼 I'm open to collaborating on projects related to impactful business issues where machine learning or deep learning can make a difference.
 
-    📫 You can reach me via email at your.email@example.com or connect with me on LinkedIn (www.linkedin.com/in/daquan-sun).
+    📫 You can reach me via email at daquansun1010@gmail.com or connect with me on LinkedIn (www.linkedin.com/in/daquan-sun).
 
     😄 Pronouns: He/Him
 
